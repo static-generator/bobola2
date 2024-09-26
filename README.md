@@ -4,7 +4,7 @@
 > Carolina, Naga City
 ---
 
-### **Favorite Movie**
+### **Favorite Ghibli**
 
 ![](https://s3.amazonaws.com/nightjarprod/content/uploads/sites/130/2023/03/02134750/howls-moving-castle-poster-Ghibli-scaled.jpg)
 
